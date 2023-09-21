@@ -1,1 +1,13 @@
 # SAMPLE-DATA-BASE
+
+![image](https://github.com/RND-NONAGON-KEYWARRIORS/SAMPLE-DATA-BASE/assets/143982031/906b78c4-13e0-4d1d-ba96-f7e132b5d9dd)<br>
+
+![image](https://github.com/RND-NONAGON-KEYWARRIORS/SAMPLE-DATA-BASE/assets/143982031/348cbaef-c767-4328-ba29-8ec6218ef2bc)<br>
+
+![image](https://github.com/RND-NONAGON-KEYWARRIORS/SAMPLE-DATA-BASE/assets/143982031/1a9cb865-0098-42ce-a275-74138b55d180)<br>
+
+![image](https://github.com/RND-NONAGON-KEYWARRIORS/SAMPLE-DATA-BASE/assets/143982031/fb537bc6-a95f-4f08-aa52-2039e8372d1c)
+
+
+
+
